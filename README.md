@@ -1,1 +1,1 @@
-https://builders-pgp-sticks-edge.trycloudflare.com
+https://man-seek-parents-collections.trycloudflare.com
