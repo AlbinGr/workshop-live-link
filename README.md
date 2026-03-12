@@ -1,1 +1,1 @@
-https://forever-interior-gabriel-specified.trycloudflare.com
+https://module-launched-even-zoo.trycloudflare.com
