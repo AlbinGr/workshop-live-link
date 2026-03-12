@@ -1,1 +1,1 @@
-https://loving-text-tribune-training.trycloudflare.com
+https://beverly-information-found-counter.trycloudflare.com
