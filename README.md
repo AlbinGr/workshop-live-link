@@ -1,1 +1,1 @@
-https://minimal-bios-var-scsi.trycloudflare.com
+https://builders-pgp-sticks-edge.trycloudflare.com
