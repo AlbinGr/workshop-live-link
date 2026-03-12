@@ -1,1 +1,1 @@
-https://midnight-electric-vbulletin-outcome.trycloudflare.com
+https://loving-text-tribune-training.trycloudflare.com
