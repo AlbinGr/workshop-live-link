@@ -1,1 +1,1 @@
-https://revenue-violation-warnings-festival.trycloudflare.com
+https://crystal-karl-january-faq.trycloudflare.com
