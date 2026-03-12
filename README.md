@@ -1,1 +1,1 @@
-https://meant-sure-dependent-choir.trycloudflare.com
+https://minimal-bios-var-scsi.trycloudflare.com
