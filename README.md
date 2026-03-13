@@ -1,1 +1,1 @@
-https://state-earn-terrace-van.trycloudflare.com
+https://side-phd-suited-chosen.trycloudflare.com
