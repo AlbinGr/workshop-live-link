@@ -1,1 +1,1 @@
-https://battle-region-important-cbs.trycloudflare.com
+https://improved-attacks-coast-millennium.trycloudflare.com
