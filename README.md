@@ -1,1 +1,1 @@
-https://rio-labels-fruits-maintenance.trycloudflare.com
+https://never-thus-andale-butler.trycloudflare.com
