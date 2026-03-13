@@ -1,1 +1,1 @@
-https://hint-dense-carolina-robbie.trycloudflare.com
+https://battle-region-important-cbs.trycloudflare.com
