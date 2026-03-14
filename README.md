@@ -1,1 +1,1 @@
-https://wish-amounts-qualities-replacement.trycloudflare.com
+https://aspects-flag-ben-everyday.trycloudflare.com
