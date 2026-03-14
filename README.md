@@ -1,1 +1,1 @@
-https://while-cooling-soviet-city.trycloudflare.com
+https://ada-hearts-spending-lap.trycloudflare.com
