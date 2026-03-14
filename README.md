@@ -1,1 +1,1 @@
-https://ada-hearts-spending-lap.trycloudflare.com
+https://comedy-show-cash-primary.trycloudflare.com
