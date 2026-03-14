@@ -1,1 +1,1 @@
-https://adaptive-trading-comparative-offering.trycloudflare.com
+https://motivation-principal-teenage-reasonably.trycloudflare.com
