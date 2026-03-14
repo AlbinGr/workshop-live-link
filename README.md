@@ -1,1 +1,1 @@
-https://aspects-flag-ben-everyday.trycloudflare.com
+https://adaptive-trading-comparative-offering.trycloudflare.com
