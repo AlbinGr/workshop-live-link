@@ -1,1 +1,1 @@
-https://motivation-principal-teenage-reasonably.trycloudflare.com
+https://earl-shaved-note-std.trycloudflare.com
